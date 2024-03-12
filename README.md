@@ -7,4 +7,4 @@
 - 👨‍👩‍👧‍👦 I’m looking to collaborate on projects that empower growth.
 - 💬 Ask me about Books
 - 💅🏼 Pronouns: she/her
-- ⚡ Fun fact: I love telling stories on Youtube and we're called Spinners.
+- ⚡ Fun fact: I love creating videos [i am on Youtube ⭐️].
